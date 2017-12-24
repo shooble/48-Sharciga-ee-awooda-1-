@@ -1,5 +1,8 @@
 # 48-Sharciga-ee-awooda-1-
 
+       SHARCIGA
+       1
+
 Weliga haka wanagsanaan qofka kaa sareeya (Boss-kaada)
 
 Maxaa loola jeedaa?
