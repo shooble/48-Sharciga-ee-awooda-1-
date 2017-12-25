@@ -1,4 +1,4 @@
-# 48-Sharciga-ee-awooda-1-
+# 48-Sharci-ee-awooda-1-
 
        SHARCIGA
        1
