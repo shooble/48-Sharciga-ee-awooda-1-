@@ -3,9 +3,10 @@
        SHARCIGA
        1
 
-Weliga haka wanagsanaan qofka kaa sareeya (Boss-kaada)
+WELIGAA HAKA WANAAGSANAAN QOFKA KAA SAREEYA (BOSS-KAADA)
 
-Maxaa loola jeedaa?
+
+MAXAA LOOLA JEEDAA?
 
 Qofwalboo kaa sareeya haduu dareemo in aad ka wanagsantahay hawaduu kugu cunaa, sababtoo ah arintasi waxay sababaysa in uu 
 xasilooni daro dareemo. Qof jecel majirto in laga wanagsanaado, marwalba ku dadaal in uu qofkaasi umuuqdo mid kaa wanagsan, 
